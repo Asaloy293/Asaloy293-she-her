@@ -1,4 +1,4 @@
-# Asaloy293-she-her###  I'm Asaloy Hakimboyeva Alibek qizi👋
+# Asaloy293 I'm Asaloy Hakimboyeva Alibek qizi👋
 
 <p align="center">
   
